@@ -1,4 +1,4 @@
-# 
+# Professionnel sushiswap trading bot scripts for Mac OS | VIP sushiswap trading bot scripts for PC Windows. Featuring API d'échange décentralisé and analyse de la dynamique — optimized for maximum performance.
 
 
 
